@@ -1,5 +1,5 @@
 # 💫 About Me
-🌱 Software Engineer in the making<br>🤝 Always open to innovative ideas<br>💬 "The only limits are those of vision"
+🌱 Software Engineer in the making<br>🤝 Always open to innovative ideas<br>💬 "Complexity can create simplicity."
 
 
 ## 🌐 Socials
